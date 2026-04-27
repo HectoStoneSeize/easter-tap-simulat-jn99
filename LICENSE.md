@@ -1,4 +1,4 @@
-
+easter tap simulator no-ban Script is the best easter tap simulator Script, featuring infinite resources and silent aim. Safe and powerful for all
 
 
 
